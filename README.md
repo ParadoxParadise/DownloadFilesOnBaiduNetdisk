@@ -1,6 +1,6 @@
 # downloadOnPanBaidu
 <pre> 
-IF YOU LOOKING FOR A WAY TO DOWNLOAD ON PANBAIDU then
+IF YOU LOOKING FOR A WAY TO DOWNLOAD ON Baidu Netdisk then
 https://www.uy5.net/ode/ is the solution,
 however it's limit on 1 file per download
 You can also find a helper
